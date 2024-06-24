@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cross Platform Development
 - 🌱 I’m currently learning DART & FLUTTER
 - 💞️ I’m looking to collaborate on developing intuitive and creative mobile applications.
-- 📫 How to reach me Linkdln: www.linkedin.com/in/emmanuel-gbesan-b26037270 WhatsApp: 09114274353,Instagram: it's_boimanuel
+- 📫 How to reach me Email: emmagbesan@gmail.com, Linkdln: www.linkedin.com/in/emmanuel-gbesan-b26037270 ,Instagram: [it's_boimanuel](https://www.instagram.com/its_boimanuel/)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
